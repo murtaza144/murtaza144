@@ -1,4 +1,3 @@
-### Hi there 👋
 
 # Muhammad Murtaza - Electrical Engineer
 
